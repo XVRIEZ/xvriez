@@ -1,4 +1,4 @@
-[![MasterHead](https://i.pinimg.com/originals/1b/fd/ff/1bfdffbf3663f0f3bb7138ab578a7204.gif)]
+![MasterHead](https://i.pinimg.com/originals/1b/fd/ff/1bfdffbf3663f0f3bb7138ab578a7204.gif)
 <h3 align="center">Isi nya emang kosong gk sih?</h3>
 <img align="right" alt="kucing" width="400" src="https://img1.picmix.com/output/stamp/normal/6/1/2/0/1560216_449d0.gif">
 
