@@ -1,4 +1,4 @@
-![MasterHead](https://i.pinimg.com/originals/1b/fd/ff/1bfdffbf3663f0f3bb7138ab578a7204.gif)
+![MasterHead](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/14bb8561-cee7-47a2-a86b-8e1c292ceba5/d74dr6w-6dafa4cf-4cd8-4465-80a2-b8d3da19383f.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzE0YmI4NTYxLWNlZTctNDdhMi1hODZiLThlMWMyOTJjZWJhNVwvZDc0ZHI2dy02ZGFmYTRjZi00Y2Q4LTQ0NjUtODBhMi1iOGQzZGExOTM4M2YuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.vfOHZw_oPC4ICwd2axrzUGijGnaT3h7ww-pHvXQUS4g)
 <h3 align="center">Ini Tulisan Tidak ada artinya</h3>
 <img align="right" alt="kucing" width="400" src="https://img1.picmix.com/output/stamp/normal/6/1/2/0/1560216_449d0.gif">
 
