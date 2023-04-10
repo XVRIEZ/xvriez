@@ -27,4 +27,3 @@ Z
 
 <p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=xvriez&show_icons=true&locale=en" alt="xvriez" /></p>
 
-<p><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=xvriez&" alt="xvriez" /></p>
